@@ -10,8 +10,6 @@ By Jennifer Dotson
 Published by Kelsay Books
 
 ![Cover of Late Night Talk Show Fantasy & Other Poems](images/LNTSFcoversmall.jpg)
-
-![Cover of Late Night Talk Show Fantasy & Other Poems](images/talkshowcover.jpeg)
 <sub>Cover illustration for Late Night Talk Show Fantasy & Other Poems by Cheryl Steiger</sub>
 
 ## Endorsements for _Late Night Talk Show_
@@ -53,6 +51,6 @@ along on a fantastic romp through her wide range of poetic talents.
 
 
 
-![Poetry Today Collage of Guests](/images/talkshowcollage03.jpg)
+![Poetry Today Collage of Guests](/images/talkshowcollage02.jpg)
 
->To spread the word about what local poets are doing, Jennifer hosts a 30-minute public-access program called **Poetry Today**.
+>While Jennifer has not yet been invited to appear on a late night talk show, she enjoys spreading the word about what local poets are doing by hosting a 30-minute public-access program called **Poetry Today**.
