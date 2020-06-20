@@ -23,3 +23,6 @@ Published by Chicago Poetry Presss in April 2013.
 
 
 [Purchase from Amazon](https://www.amazon.com/Clever-Gretel-Jennifer-Dotson/dp/0615769640/ref=sr_1_1?dchild=1&keywords=clever+gretel+by+jennifer+dotson&qid=1592663611&sr=8-1)
+
+
+<img src="/headshotCG.jpg" alt="Jennifer Dotson 2013" title="Jennifer Dotson headshot from 2013 by Martha Abelson Photography" width="200" height="300"/>
