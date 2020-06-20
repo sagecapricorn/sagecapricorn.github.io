@@ -9,6 +9,8 @@ By Jennifer Dotson
 
 Published by Kelsay Books
 
+![Cover of Late Night Talk Show Fantasy & Other Poems](images/LNTSFcoversmall.jpg)
+
 ![Cover of Late Night Talk Show Fantasy & Other Poems](images/talkshowcover.jpeg)
 <sub>Cover illustration for Late Night Talk Show Fantasy & Other Poems by Cheryl Steiger</sub>
 
