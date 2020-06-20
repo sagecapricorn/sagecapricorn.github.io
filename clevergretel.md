@@ -5,7 +5,7 @@ title: Clever Gretel
 
 By Jennifer Dotson
 
-Published by Journal of Modern Poetry
+Recipient of Journal of Modern Poetry First Book Award and published by Chicago Poetry Presss in April 2013.
 
 ![Clever Gretel](images/clevergretelcover.jpg)
 
