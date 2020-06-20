@@ -43,3 +43,8 @@ after poem, from prepping for the apocalypse to wearing basic black, Dotson take
 along on a fantastic romp through her wide range of poetic talents.
 
 ~ **Cynthia Gallaher**, author of _Epicurean Ecstasy: More Poems About Food, Drink, Herbs & Spices_ and _Frugal Poets’ Guide to Life: How to Live a Poetic Life, Even If You Aren’t a Poet_.
+
+
+[Purchase direct from Kelsay Books](https://kelsaybooks.com/products/late-night-talk-show-fantasy-other-poems?_pos=1&_sid=2a34b182f&_ss=r)
+
+[Purchase from Amazon](https://www.amazon.com/Late-Night-Fantasy-Other-Poems/dp/1952326036/ref=sr_1_2?dchild=1&keywords=late+night+talk+show+fantasy+jennifer+dotson&qid=1592663757&sr=8-2)
