@@ -54,4 +54,4 @@ along on a fantastic romp through her wide range of poetic talents.
 
 ![Poetry Today Collage of Guests](/images/talkshowcollage02.jpg)
 
->While Jennifer has not yet been invited to appear on a late night talk show, she enjoys spreading the word about what local poets are doing by hosting a 30-minute public-access program called **Poetry Today**.
+>While Jennifer has not yet been invited to appear on any late night talk shows, she enjoys spreading the word about what local poets are doing by hosting her own 30-minute public-access program called **Poetry Today**.
