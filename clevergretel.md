@@ -27,4 +27,4 @@ Published by Chicago Poetry Presss in April 2013.
 
 
 ![Jennifer Dotson 2013](/images/headshotCG.jpg)
-
+<sub>PHOTO – credit Martha Abelson Photography</sub>
