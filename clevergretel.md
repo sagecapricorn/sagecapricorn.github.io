@@ -9,8 +9,6 @@ Published by Chicago Poetry Presss in April 2013.
 
 ![Clever Gretel](images/CGcover.jpg)
 
-![Clever Gretel](images/clevergretelcover.jpg)
-
 <sub>Cover Illustration by Sue Cargill</sub>
 
 ## Praise for _Clever Gretel_
