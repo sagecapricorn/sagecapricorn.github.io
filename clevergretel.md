@@ -5,7 +5,7 @@ title: Clever Gretel
 
 By Jennifer Dotson
 
-Published by Chicago Poetry Presss in April 2013.
+Published by Chicago Poetry Press in April 2013.
 
 ![Clever Gretel](images/CGcoverborder.jpg)
 
