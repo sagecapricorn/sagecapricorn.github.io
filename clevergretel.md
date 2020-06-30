@@ -8,7 +8,7 @@ By Jennifer Dotson
 Published by Chicago Poetry Presss in April 2013.
 
 ![Clever Gretel](images/CGcoverborder.jpg)
-![Clever Gretel](images/CGcover.jpg)
+
 
 <sub>Cover Illustration by Sue Cargill</sub>
 
