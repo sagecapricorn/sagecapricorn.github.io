@@ -11,7 +11,7 @@ Published by Kelsay Books
 
 ![Cover of Late Night Talk Show Fantasy & Other Poems](images/LNTSFcoversmallborder.jpg)
 
-<sub>Cover illustration for Late Night Talk Show Fantasy & Other Poems by Cheryl Steiger</sub>
+<sub>Cover illustration by Cheryl Steiger</sub>
 
 ## Endorsements for _Late Night Talk Show_
 
