@@ -5,7 +5,7 @@ title: Home
 
 # Jennifer Dotson, Poet
 
-![Jennifer Dotson Headshot](images/jenniferheadshot.jpg)
+![Jennifer Dotson Headshot](images/headshotLNTSF.jpg)
 <sub>PHOTO – credit Martha Abelson Photography</sub>
 
 
