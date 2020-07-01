@@ -9,7 +9,7 @@ title: Upcoming Events
 
 Sunday, July 19, 2020
 
-Time TBD
+Time 7:30 PM CDT
 
 Celebrate the publication of *Late Night Talk Show Fantasy & Other Poems* via Zoom with this virtual book launch. Event includes readings of select poems, Q&A, book signing and more. *Tickets are free; advance event registration required.*
 
