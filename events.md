@@ -44,3 +44,7 @@ This workshop will be conducted virtually via Zoom. Advance registration is requ
 Jennifer facilitates workshops on writing and poetry at schools, libraries and
 community groups. Please contact her for a full description of available
 workshops and presentations.
+
+
+
+
