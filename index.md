@@ -26,3 +26,11 @@ workshops for the Highland Park Public Library’s Library U Program. Since 2007
 Jennifer is the founder and program coordinator for [Highland Park Poetry](http://highlandparkpoetry.org/).
 Jennifer received her B.A. in English Literature & Theatre Arts from St. Mary’s
 College of Maryland and her M.F.A. in Drama from the University of Virginia.
+
+
+Can't wait to get your hands on Jennifer's newest collection, 
+*Late Night Talk Show Fantasy & Other Poems*?
+
+[Purchase NOW from Amazon - increase chance of receiving in time for Zoom launch event](https://www.amazon.com/Late-Night-Fantasy-Other-Poems/dp/1952326036/ref=sr_1_2?dchild=1&keywords=late+night+talk+show+fantasy+jennifer+dotson&qid=1592663757&sr=8-2)
+
+[Purchase direct from Kelsay Books](https://kelsaybooks.com/products/late-night-talk-show-fantasy-other-poems?_pos=1&_sid=2a34b182f&_ss=r)
