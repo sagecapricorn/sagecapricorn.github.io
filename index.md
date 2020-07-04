@@ -12,12 +12,12 @@ title: Home
 
 
 ## About
-Jennifer Dotson is the author of Late Night Talk Show Fantasy & Other Poems (Kelsay
-Books, 2020). Her debut poetry collection, Clever Gretel, received the Journal of
+Jennifer Dotson is the author of *Late Night Talk Show Fantasy & Other Poems* (Kelsay
+Books, 2020). Her debut poetry collection, *Clever Gretel*, received the Journal of
 Modern Poetry First Book Award and was published by Chicago Poetry Press in 2013.
-Her poems have appeared in After Hours, Caravel Literary Arts Journal, DuPage
+Her poems have appeared in *After Hours, Caravel Literary Arts Journal, DuPage
 Valley Review, East on Central, Exact Change Only, Journal of Modern Poetry/Poetry
-Cram, The MacGuffin, Panoplyzine, Poetry Pacific, and Willow Review. Her works have
+Cram, The MacGuffin, Panoplyzine, Poetry Pacific*, and *Willow Review*. Her works have
 also appeared in numerous anthologies including Raising Lilly Ledbetter (Lost Horse
 Press), Distilled Lives, Volumes 2 & 4 (Illinois State Poetry Society) and A
 Midnight Snack (Poetic License Press). She was the Waiting4theBus’ 2013 Poetry
