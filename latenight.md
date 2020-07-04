@@ -9,6 +9,11 @@ By Jennifer Dotson
 
 Published by Kelsay Books
 
+[Purchase NOW from Amazon - increase chance of receiving in time for Zoom launch event](https://www.amazon.com/Late-Night-Fantasy-Other-Poems/dp/1952326036/ref=sr_1_2?dchild=1&keywords=late+night+talk+show+fantasy+jennifer+dotson&qid=1592663757&sr=8-2)
+
+[Purchase direct from Kelsay Books](https://kelsaybooks.com/products/late-night-talk-show-fantasy-other-poems?_pos=1&_sid=2a34b182f&_ss=r)
+
+
 ![Cover of Late Night Talk Show Fantasy & Other Poems](images/LNTSFcoversmallborder.jpg)
 
 <sub>Cover illustration by Cheryl Steiger</sub>
