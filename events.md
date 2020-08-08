@@ -7,13 +7,9 @@ title: Upcoming Events
 
 ***Late Night Talk Show Fantasy & Other Poems* Virtual Book Launch**
 
-Sunday, July 19, 2020
+If you missed the Zoom event on Sunday, July 19, 2020, be sure to check out the video. Produced by Ice Hat Creative, this dynamic event hosted by Christine Hartman includes Jennifer reading select poems, performances by house band The Replicas, Q&A, trivia and more. 
 
-Time 7:30 PM CDT
-
-Celebrate the publication of *Late Night Talk Show Fantasy & Other Poems* via Zoom with this virtual book launch. Event includes readings of select poems, Q&A, book signing and more. *Tickets are free; advance event registration required.*
-
- [Register for Virtual Book Launch](https://www.eventbrite.com/e/jennifer-dotson-virtual-book-launch-tickets-112122952770)
+ [Click here for video](https://vimeo.com/444375322)
 
 
 
@@ -48,3 +44,7 @@ workshops and presentations.
 
 
 
+## In the Media
+
+***Highland Park Neighbors* August 2020**
+![Cover of Highland Park Neighbors August 2020](images/HPNcover.jpg)
