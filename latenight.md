@@ -56,7 +56,7 @@ along on a fantastic romp through her wide range of poetic talents.
 [Purchase from Amazon](https://www.amazon.com/Late-Night-Fantasy-Other-Poems/dp/1952326036/ref=sr_1_2?dchild=1&keywords=late+night+talk+show+fantasy+jennifer+dotson&qid=1592663757&sr=8-2)
 
 
-![Cover of Highland Park Neighbors August 2020](images/HPN_cover.jpg)
+![Cover of Highland Park Neighbors August 2020](images/HPNcover.jpg)
 
 ![Poetry Today Collage of Guests](/images/talkshowcollage02.jpg)
 
